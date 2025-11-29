@@ -1,1 +1,1 @@
-I’m Tom Fish! From 2015 to 2022, I worked as a GIS Analyst and Geospatial Technologist, applying my expertise to support clients in the international development, law enforcement, and environmental sectors. In addition to my professional work, I was the author of FishEye, a Substack newsletter, from 2020 to 2022. Currently, I am a stay-at-home dog dad in Cyprus.
+
